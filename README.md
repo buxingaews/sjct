@@ -1,7 +1,7 @@
 # 填空题秒懂百度贴吧填空题秒懂百度贴吧
 关于填空题秒懂百度贴吧填空题秒懂百度贴吧亲连伙
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+👉👉最新入口👈👉👉http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
 填空题秒懂百度贴吧填空题秒懂百度贴吧具备特出秉赋的诗者，认知力也天然轶群，领悟万物也极深透，不会囿于现象，流于肤浅，天然会因物生情，因象交易，因情生诗，因意生魂。诗有了情义，有了精神，就会扣人心弦，化无形于无形，化复杂于简纯，化朦胧于开通，化沉浊于新颖。
 不过一场萍水相逢结束，她也会回到她的生存，去处她要去的场合，而我留在原地;留在与她重逢了场合，想着那转瞬之间的优美，又安静留在本人的生存里，循规蹈矩。
